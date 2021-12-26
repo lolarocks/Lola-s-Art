@@ -1,1 +1,1 @@
-# Lola-s-Art
+# Lola-Simon-Art
